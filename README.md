@@ -1,4 +1,4 @@
-oii, me chamo kaii e aqui vão alguns fatos sobre mim: 
+oii, me chamo kaii e aqui vão alguns fatos sobre mim:
 -Eu AMO kate bush e melanie martinez, 
 -tenho 5 gatos, sendo o costelinnha o mais novo e o marmore o mais velho, 
 -meus pronomes são ele\dele, 
