@@ -3,7 +3,8 @@ Oioii me chamo Kaique, vou me apresentar.
 - sempre gostei de noites e climas nublados.
 - eu tenho 4 gatinhos
 - eu sei falar inglês quase fluente, mas eu gosto mais de progamação.
--tenho 15 NOS, FAÇO 16 DIAS 09/10.
+-tenho 15 ANOS
+-FAÇO 16 DIAS 09/10.
 
 
 
